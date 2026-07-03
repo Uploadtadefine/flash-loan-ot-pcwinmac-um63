@@ -1,4 +1,4 @@
-# 
+# Premium flash loan arbitrage bot plugins para Mac OS | Turbo flash loan arbitrage bot plugins para PC Windows. Com painéis personalizados e análise de dados históricos — otimizado para máximo desempeño en cada plataforma.
 
 
 
